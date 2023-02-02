@@ -1,1 +1,0 @@
-# kovoorprajwal.github.io
